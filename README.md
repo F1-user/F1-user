@@ -1,0 +1,5 @@
+- Hi
+- im a pro hacker :sunglasses:
+- i dox ppl for fun :yawn:
+- i ddos for fun :yawn:
+- if u talk shit about me, ill dox u 
